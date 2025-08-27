@@ -31,5 +31,6 @@ Contributions are welcome! If you have suggestions for improvements or new featu
 5.  Open a Pull Request.
 
 ## Contact
-https://github.com/Olasoji01
-https://x.com/OlaTheDataGuy01?t=_1VoXra2gyAIW07nIsJHag&s=09
+https://github.com/lagosboyyyyy
+https://x.com/__lagosboyyyyy?t=mqwVa6XTYYGQIYWzlQKmiQ&s=09
+
